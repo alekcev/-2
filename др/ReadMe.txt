@@ -1,2 +1,2 @@
 Тутор:
-https://dzen.ru/a/ZwphKUAHMXPkAUc_
+https://dzen.ru/a/ZwldLUXW1yyqOH_5
